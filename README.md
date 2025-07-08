@@ -1,6 +1,6 @@
 # cheatseller-Checker
 
-• ┌ Name: RdpHostings.com
+• ┌ Name: cheatseller.com
 
 • ├ Proxy:  ✅
 
